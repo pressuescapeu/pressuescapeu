@@ -1,5 +1,5 @@
 - Hi, I’m @pressuescapeu
-- I’m still finding my place in this world 
+- I’m still finding my place in this world - but I think I slowly started figuring it out. Hopefully I will update this with a new label for myself, but thankfully, I really am slowly getting somewhere. 
 - How to reach me: telegram - @press_escape
 
 <!---
